@@ -1,2 +1,2 @@
 Erik Bagdasarov A.
-I favorite hobbi is do JuiJutsu.
+I fond of do Jiu Jitsu
